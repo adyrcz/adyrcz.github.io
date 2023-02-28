@@ -1,1 +1,0 @@
-# adyrcz.github.io
